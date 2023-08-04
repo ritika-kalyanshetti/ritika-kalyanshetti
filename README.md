@@ -1,4 +1,4 @@
-### Hi there 👋 I am Ritika Kalyanshetti
+### Hi there 👋 I am Ritika S Kalyanshetti
 
 
 ## 🔡Languages
